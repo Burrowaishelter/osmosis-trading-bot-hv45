@@ -1,4 +1,4 @@
-# 
+# Get the ultimate osmosis trading bot with rare osmosis trading bot | fee-optimization + cross-chain-arbitrage. Featuring fee-optimization and cross-chain-arbitrage, it's the best
 
 
 
